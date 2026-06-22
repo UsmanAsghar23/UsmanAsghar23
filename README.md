@@ -1,5 +1,5 @@
 # 💫 About Me:
-Hi, I'm Usman Asghar, a Computer Science student at the University of Illinois at Urbana-Champaign. 🇵🇰🇮🇳🇺🇸<br><br>I love coding, solving problems, and working with others to make great ideas come to life. 😎<br><br>Building new things and exploring useful, creative solutions is what drives me. 💪<br><br>Outside of tech, you'll find me playing sports, gaming, reading, or hanging out with family. 🏈🏀🏋🏼<br><br>Always open to connect — feel free to reach out! 🏅<br>
+Hi, I'm Usman Asghar, a Computer Science student at the University of Illinois at Urbana-Champaign. 🇵🇰🇮🇳🇺🇸<br><br>I love coding, solving problems, and working with others to make great ideas come to life. 😎<br><br>Building new things and exploring useful, creative solutions is what drives me. 💪<br><br>Outside of tech, you'll find me playing sports, gaming, reading, or hanging out with family. 🏈🏀🏋🏼<br><br>Always open to connect — feel free to reach out! 🏅<br> 
 
 
 ## 🌐 Socials:
